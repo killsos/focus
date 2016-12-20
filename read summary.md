@@ -13,3 +13,9 @@
     * R realistic   现实的 目标是现实的
     * T timely      及时的 目标及时完成
 
+9. 交谈模式: 1 先跟后带  2 重新架构 就是用不同的方式看待事物 3 用比喻和故事来交谈
+10. 用三问消除谈话对立 在反对一个人观点之前至少提出三个问题
+11. 3D原则 delete delegate do
+12. MAD massive action day
+
+
